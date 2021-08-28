@@ -18,4 +18,4 @@
 |Trương Minh Tuấn|19522485|
 
 ## GVHD
-* **Thầy Ngô Đức Thành **
+* **Thầy Ngô Đức Thành
